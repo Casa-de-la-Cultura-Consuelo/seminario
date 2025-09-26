@@ -10,7 +10,7 @@ Gabriel Franco Castro -Bohama Septiembre 9, 2008
 
 Mi esperanza: Al final de esta pasantia aprender todo lo que se pueda
 
-Mi expectativa: Tener mucho mas conocimiento del que ya que tengo sobre estos temas
+Mi expectativa: Tener mucho mas conocimiento del que ya que tengo sobre estos temas.
 
 
 
