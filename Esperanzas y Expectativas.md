@@ -1,4 +1,4 @@
-Sebastian Alexander Patrick Luis 
+Sebastian Alexander Patrick Luis - Mangaka0133
 Octubre 1, 2008
 
 Mi esperanza:
