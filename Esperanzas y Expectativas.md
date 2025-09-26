@@ -8,3 +8,10 @@ Mi expectativa:
 Que se entreguen al 100%. Esta vida es para servir.
 El que sirve, sirve. Quien no sirve no tiene valor.
 Amen. Y suerte. 
+
+Adrian Ramirez - Adrian
+Octubre 30, 2008
+
+Mi esperanza: dar lo mejor de mi
+
+Mi expectativa: dar lo mejor de mi en esta pasantia y adquirir los conocimientos que sean entregados
