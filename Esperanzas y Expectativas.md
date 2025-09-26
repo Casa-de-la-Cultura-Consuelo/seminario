@@ -61,7 +61,7 @@ Dariel Mercedes - Batman
 Junio 8, 2008
 
 Mi esperanza:
-Aprender lo mas que pueda y ser mejorque hoy en el mañana.
+Aprender lo mas que pueda y ser mejor que hoy en el mañana.
 
 Mi expectativa:
-Desarrollar mis abilidades tecnicas y mi pensamiento logico aprenderlo mas posible y dar mi 100% en todo lo que haga.
+Desarrollar mis habilidades tecnicas y mi pensamiento logico aprender lo mas posible y dar mi 100% en todo lo que haga.
