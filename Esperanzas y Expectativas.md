@@ -54,6 +54,7 @@ Amen. Y suerte.
 
 -----------------------
 
+
 Juan Carlos Tolentino Peña - Chepe0936 
 septiembre 20, 2008
 
@@ -75,6 +76,18 @@ Mi esperansa es aprender lo mas que pueda para integrarme al mundo laboral y ser
 
 Mi expectativa:
 Es entregar todo de mi parte para progresar al masximo nivel de programacion que pueda y completar todas las tareas y mas que lo que me den mis instrutores. 
+
+-----------------------
+
+Madelin Lizmar Jimenez - muchapaciencia
+Octubre 11, 2007-Github-lizmar-mendez
+
+Mi esperanza:
+Seguir aprendiendo sin redirme nunca antes la abversidades.
+
+Mi expectativa:
+Dar lo mejor de mí, sin rendirme, con madurez y 
+sabiduría para alcanzar todo lo que me propongo.
 
 -----------------------
 
