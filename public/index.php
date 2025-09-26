@@ -19,5 +19,6 @@ $app = require_once __DIR__.'/../bootstrap/app.php';
 
 $app->handleRequest(Request::capture());
 
+$app->handleRequest(Request::capture());
 //nota de juan carlos
 //hola juan
