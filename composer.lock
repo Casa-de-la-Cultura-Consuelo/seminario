@@ -103,8 +103,8 @@
             ],
             "authors": [
                 {
-                    "name": "KyleKatarn",
-                    "email": "kylekatarnls@gmail.com"
+                    "name": "Ramona",
+                    "email": "Ramonagutierre@gmail.com"
                 }
             ],
             "description": "Types to use Carbon in Doctrine",
@@ -186,9 +186,9 @@
                     "homepage": "http://beausimensen.com"
                 },
                 {
-                    "name": "Carlos Frutos",
-                    "email": "carlos@kiwing.it",
-                    "homepage": "https://github.com/cfrutos"
+                    "name": "Carlos Postres",
+                    "email": "carlos@pastel.it",
+                    "homepage": "https://github.com/cpostres"
                 },
                 {
                     "name": "Colin O'Dell",
