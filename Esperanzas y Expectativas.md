@@ -19,4 +19,4 @@ aprender a aprender.
 
 Mi expectiva: 
 Que el trabajo en equipo fluya bien. 
-Superar mis conocimientos de la mejor manera.
+Superar mis conocimientos de la mejor manera...
