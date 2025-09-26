@@ -8,3 +8,11 @@ Mi expectativa:
 Que se entreguen al 100%. Esta vida es para servir.
 El que sirve, sirve. Quien no sirve no tiene valor.
 Amen. Y suerte. 
+
+---Juan carlos tolentino
+
+mi esperanza:
+Adquirir todo el conocimiento posible y ser una persona que cumpla sus objetivos personales.
+
+Mi expectativa:
+Trabajar duro para conseguir mis objetivos y conseguir conocimiento util para la vida laboral.
