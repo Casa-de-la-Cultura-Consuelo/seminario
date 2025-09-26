@@ -110,3 +110,14 @@ Tener la sabiduria suficiente para afrontar los obstaculos
 
 Mi expectativa:
 Poder superar mis limites y lograr cada cosa que me proponga, La disciplina Vencera a la inteligencia...
+
+-----------------------
+
+Sebastian Alexander Patrick Luis - Mangaka0133
+Octubre s01, 2008
+
+Mi esperanza:
+Mi esperanza es tener la suficiente experencia y profesionalismo para estar listo para la vida
+
+Mi expectativa:
+Poder con todo, superar mis limites, lograr mis metas, y adquirir experiencias increibles
