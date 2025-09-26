@@ -1,3 +1,4 @@
+
 Sebastian Alexander Patrick Luis - Mangaka0133
 Octubre 1, 2008
 
@@ -26,21 +27,6 @@ Quedar vivo a final de año.
 
 Mi expectativa:
 aprender y mejorar todos mis conocimiento y poder llegar lejos, y ayudar a mi equipo en todo <3
-
-
-
-Gustavo Tavares - mucholove
-Octubre 12, 1990
-
-Mi esperanza:
-Que aprendan a actuar por el bien, ahora y siempre.
-
-Mi expectativa:
-
-Que se entreguen al 100%. Esta vida es para servir.
-El que sirve, sirve. Quien no sirve no tiene valor.
-Amen. Y suerte. 
-
 
 Josmaicer Almonte - mucholove
 enero 28, 2008
@@ -79,3 +65,5 @@ Aprender lo mas que pueda y ser mejorque hoy en el mañana.
 
 Mi expectativa:
 Desarrollar mis abilidades tecnicas y mi pensamiento logico aprenderlo mas posible y dar mi 100% en todo lo que haga.
+
+Aprender y desarrollarme en el entorno laboral en el que me encuentre en un futuro si Dios me lo perimite.
