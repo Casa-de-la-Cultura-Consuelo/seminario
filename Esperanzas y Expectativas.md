@@ -1,10 +1,8 @@
-Gustavo Tavares - mucholove
-Octubre 12, 1990
+Steven Nolasco - stexsask
+Octubre 28, 2008
 
 Mi esperanza:
-Que aprendan a actuar por el bien, ahora y siempre.
+Aprender lo mas que pueda.
 
 Mi expectativa:
-Que se entreguen al 100%. Esta vida es para servir.
-El que sirve, sirve. Quien no sirve no tiene valor.
-Amen. Y suerte. 
+Entregarme al 100% y hacer todas las actividades.
