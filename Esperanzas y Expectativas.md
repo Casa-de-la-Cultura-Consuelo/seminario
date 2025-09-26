@@ -65,5 +65,3 @@ Aprender lo mas que pueda y ser mejorque hoy en el mañana.
 
 Mi expectativa:
 Desarrollar mis abilidades tecnicas y mi pensamiento logico aprenderlo mas posible y dar mi 100% en todo lo que haga.
-
-Aprender y desarrollarme en el entorno laboral en el que me encuentre en un futuro si Dios me lo perimite.
