@@ -1,10 +1,8 @@
-Gustavo Tavares - mucholove
-Octubre 12, 1990
+Derlyn Rodriguez Cabrera
+20 marzo 2008
 
 Mi esperanza:
-Que aprendan a actuar por el bien, ahora y siempre.
+apreder para estar mas capacitado 
 
 Mi expectativa:
-Que se entreguen al 100%. Esta vida es para servir.
-El que sirve, sirve. Quien no sirve no tiene valor.
-Amen. Y suerte. 
+Apreder mas para tener conocimiento y que me sea de utidad lo que aprende 
