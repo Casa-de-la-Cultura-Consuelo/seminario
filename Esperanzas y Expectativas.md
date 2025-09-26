@@ -1,10 +1,8 @@
-Gustavo Tavares - mucholove
-Octubre 12, 1990
+Sebastian Alexander Patrick Luis 
+Octubre 1, 2008
 
 Mi esperanza:
-Que aprendan a actuar por el bien, ahora y siempre.
+Mi esperanza es ver cambios a mi alrededor.
 
 Mi expectativa:
-Que se entreguen al 100%. Esta vida es para servir.
-El que sirve, sirve. Quien no sirve no tiene valor.
-Amen. Y suerte. 
+Mi expectativa es que esto mas que una simple experiencia, sea algo que me marque en mi vida.
