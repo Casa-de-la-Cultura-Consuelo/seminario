@@ -21,3 +21,4 @@ $app->handleRequest(Request::capture());
 
 //Hola Gustavitooo:)
 //I am Dariel
+$app->handleRequest(Request::capture());
