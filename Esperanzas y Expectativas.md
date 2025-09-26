@@ -1,3 +1,11 @@
+Adrian Ramirez - Adrian
+Octubre 30, 2008
+
+Mi esperanza: dar lo mejor de mi
+
+Mi expectativa: dar lo mejor de mi en esta pasantia y adquirir los conocimientos que sean entregados
+
+
 Astrid Baez - astridG-creator
 Octubre 12, 2008
 
@@ -17,7 +25,6 @@ Quedar vivo a final de año.
 
 Mi expectativa:
 aprender y mejorar todos mis conocimiento y poder llegar lejos, y ayudar a mi equipo en todo <3
-
 
 
 Gustavo Tavares - mucholove
