@@ -19,4 +19,3 @@ Seguir aprendiendo sin redirme nunca antes la abversidades.
 Mi expectativa:
 Dar lo mejor de mí, sin rendirme, con madurez y 
 sabiduría para alcanzar todo lo que me propongo.
-
