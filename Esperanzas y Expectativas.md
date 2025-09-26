@@ -50,7 +50,7 @@ Que aprendan a actuar por el bien, ahora y siempre.
 Mi expectativa:
 Que se entreguen al 100%. Esta vida es para servir.
 El que sirve, sirve. Quien no sirve no tiene valor.
-Amen. Y suerte. 
+Amen. Y suerte.
 
 -----------------------
 
@@ -91,6 +91,17 @@ sabiduría para alcanzar todo lo que me propongo.
 
 -----------------------
 
+Steven Nolasco - stexsask
+Octubre 28, 2008
+
+Mi esperanza:
+Aprender lo mas que pueda.
+
+Mi expectativa:
+Entregarme al 100% y hacer todas las actividades.
+
+-----------------------
+
 Yaritza Bastardo Sosa - Yaritx-v
 Julio 01, 2008
 
@@ -99,4 +110,3 @@ Tener la sabiduria suficiente para afrontar los obstaculos
 
 Mi expectativa:
 Poder superar mis limites y lograr cada cosa que me proponga, La disciplina Vencera a la inteligencia...
-
