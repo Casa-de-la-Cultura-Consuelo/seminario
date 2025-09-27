@@ -110,3 +110,12 @@ Tener la sabiduria suficiente para afrontar los obstaculos
 
 Mi expectativa:
 Poder superar mis limites y lograr cada cosa que me proponga, La disciplina Vencera a la inteligencia...
+
+-------
+Yariel Monegro- yarielM
+Abril 26, 2008
+
+Mi Esperanza:Tengo la esperanza de que cada reto es una oportunidad para crecer, que cada caída es un impulso para levantarme más fuerte.
+
+Mi expectativa:Tengo la expectativa de que con esfuerzo constante y enfoque claro, transformaré cada desafío en un paso firme hacia mi crecimiento y éxito.
+
